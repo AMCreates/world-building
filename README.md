@@ -14,7 +14,7 @@ The Methods of World-Building:
 - orange
 - yellow
 - green
-- cyan
+- [cyan](cyan.md)
 - blue
 - purple
 
