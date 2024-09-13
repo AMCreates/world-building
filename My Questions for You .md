@@ -7,6 +7,8 @@ So you are in this society where things are very different from your reality. So
 Would you take part in Twindle? 
 - You could meet the love of your life!
 
+Do you think any part of Vincent's society was good?
+
 
 
 
