@@ -1,4 +1,4 @@
-# Note
+# Why This Experiment?
 
 I had planned to write a different piece for this week, but changed my mind at the last second! So while I have not been officially working on this thought experiment for long, I have been thinking about similar ones for years. They mostly stem from wanting to push and explore what romantic love means for different people across many sexualities and identities. 
 
