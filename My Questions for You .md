@@ -6,8 +6,12 @@ So you are in this society where things are very different from your reality. Yo
 
 Would you take Twindle seriously? 
 - You could meet the love of your life!
+- If you do not experience romantic attraction, you could make good friends or whatever type of relationship you'd like. That is taken into consideration by the system.
 
-Do you think any part of Vincent's society was good?
+So you make these meaningful connections, even if you hadn't planned it, and a year passes. Now what?
+
+What issues do you think this society might run into? 
+
 
 
 
